@@ -20,6 +20,7 @@ I'm excited about collaborating on real-time projects that involve AI, ML, and D
 
 - LinkedIn: [souvik-sasmal-010a1320b](https://www.linkedin.com/in/souvik-sasmal-010a1320b)
 - Email: sasmalsouvik333@gmail.com
+- Twitter: https://www.twitter.com/SouvikSasm2001
 
 
 Let's connect and embark on a data-driven journey together! 🚀
